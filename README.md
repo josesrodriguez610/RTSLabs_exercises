@@ -12,4 +12,4 @@ https://www.josesrodriguez.com/
 
 ## Jose Rodriguez Resume
 
-https://www.josesrodriguez.com/docs/Jose%20Rodriguez%20Resume.pdf
+https://www.josesrodriguez.com/docs/Jose_Rodriguez_Resume.pdf
